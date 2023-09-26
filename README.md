@@ -1,1 +1,0 @@
-# AyushBarai_Resume
